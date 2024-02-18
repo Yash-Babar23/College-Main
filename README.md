@@ -1,1 +1,1 @@
-# Visit Now:- https://jainnanu.github.io/college-main/
+# Visit Now:- https://yash-babar23.github.io/College-Main/
